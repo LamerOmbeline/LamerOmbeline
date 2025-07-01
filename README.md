@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @LamerOmbeline
+- 👋 Hi, I’m @LamerOmbeline a bioinformaticist.
 - 👀 I’m interested in Biology, IT and others !
 - 📫 How to reach me : message my LinkedIn profile at https://fr.linkedin.com/in/ombeline-lamer
